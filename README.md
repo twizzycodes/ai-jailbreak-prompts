@@ -1,1 +1,1 @@
-More will come as i find/confirm them!
+More will come as i confirm them!
